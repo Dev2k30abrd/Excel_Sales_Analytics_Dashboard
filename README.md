@@ -123,6 +123,7 @@ Raw Data → Cleaning → Analysis → Dashboard → Insights
 🔗 Connect with me
 
 If you liked this project, feel free to connect on LinkedIn 🚀
+https://www.linkedin.com/in/devansh-rai-473506327/
 
 ⭐ If you like this project
 
